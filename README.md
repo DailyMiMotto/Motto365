@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Product Management.
 - 💞️ I’m looking to collaborate on AI Tools.
 - 📫 Reach me on TEAMS. 
-- 😄 Pronouns: Motto for "more" or "to a greater extent." I really like Motto ganbatte! → "Try harder!" or "Do your best even more!"
+- 😄 Motto for "more" or "to a greater extent." I really like Motto ganbatte! → "Try harder!" or "Do your best even more!"
 
 
 <!---
