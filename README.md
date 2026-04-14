@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Motto365
+- 👋 Hi, I’m Michelle.
 - 👀 I’m interested in AI Product Management.
 - 🌱 I’m currently learning Product Management.
 - 💞️ I’m looking to collaborate on AI Tools.
